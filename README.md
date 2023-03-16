@@ -9,3 +9,5 @@ DISCORD: VESGOBOY#0130
 3º done
 
 ![image](https://user-images.githubusercontent.com/10102323/201794992-65ba773d-c935-4be4-b191-ab4a39924373.png)
+
+https://www.paypal.com/donate/?hosted_button_id=BEW7YFJM5FA24 -- if u want to collaborate
